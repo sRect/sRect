@@ -1,4 +1,4 @@
-### Recently created repository
+### Hi there 👋
 
 > 🔭 I’m currently working on ...
 
